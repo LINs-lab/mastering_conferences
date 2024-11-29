@@ -1,1 +1,1 @@
-# mastering_conferences
+# Mastering Conferences: A Practical Guide to Attending
